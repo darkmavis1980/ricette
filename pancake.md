@@ -2,7 +2,7 @@ Io i pancake li faccio da anni ormai, e dopo anni di bestemmie ed esperimenti, h
 Per 2 persone (con parecchio appetito):
 
 * 300ml di latte intero (ma va bene pure quello di soia, ma non di riso)
-* 250gr di farina
+* 300 gr di farina (o 250gr di farina di farro raffinata)
 * 2 uova
 * 2 cucchiai di zucchero (o dolcificante, io uso l'agave per esempio)
 * un pizzico di sale
